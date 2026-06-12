@@ -12,10 +12,12 @@
 
  ◟  lunet ㅤㅤ 21 october  16 y . oㅤ:    bisexual ㅤㅤ single ㅤ:  INTP
 
+
 .
 
 ㅤㅤㅤㅤㅤㅤ!
 ㅤ,   ˙ —        ྀ࿐ ˊˎ-:ㅤㅤㅤ
+
 
 .
 
@@ -26,8 +28,7 @@
 
  , dni → racists · homophobes · sexists · anti-feminists · intolerant people
 
-    i do not interact with the people listed above.
-
+  
 .
 
 </div>
