@@ -20,14 +20,14 @@
 .
 
 ㅤㅤㅤㅤㅤㅤ
-  —  likes → music · cats · affection · making friends  
+—  likes → music · cats · affection · making friends  
 
-   —  languages → russian  +  ukrainian  + learning english
+  —  languages → russian  +  ukrainian  + learning english
 
 
  , dni → racists · homophobes · sexists · anti-feminists · intolerant people
 
-  i do not interact with the people listed above.
+   i do not interact with the people listed above.
 
 .
 
