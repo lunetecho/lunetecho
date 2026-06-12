@@ -28,7 +28,14 @@
 
  , dni → racists · homophobes · sexists · anti-feminists · intolerant people
 
-  
+
 .
+
+<p align="center">
+  <a href="https://1s4oyld5dc.ucarecd.net/a37ccba7-954a-4bc0-8f47-bf14ead60b56/">
+    <img src="https://1s4oyld5dc.ucarecd.net/a37ccba7-954a-4bc0-8f47-bf14ead60b56/" width="120">
+  </a>
+</p>
+
 
 </div>
