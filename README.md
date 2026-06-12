@@ -10,7 +10,7 @@
 
   → ˗ ˏ" lun3t „ ˎ˗ ←
 
- ◟  lunet ㅤㅤ 21 october  16 y . oㅤ:    bisexual ㅤㅤ single ㅤ:  INTP
+ ◟  lunet ㅤㅤ 21 october   :   16 y . oㅤ:    bisexual ㅤㅤ single ㅤ:  INTP
 
 
 .
