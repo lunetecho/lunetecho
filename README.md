@@ -6,7 +6,7 @@
 
 ㅤ              – who are you dealing with? . . .
 
-                     → ˗ ˏ" lun3t „ ˎ˗ ←
+                                       → ˗ ˏ" lun3t „ ˎ˗ ←
 
  ◟  lunet ㅤㅤ 21 october ㅤ:  bisexual ㅤㅤ single ㅤ:  INTP
 
@@ -17,7 +17,7 @@
 ㅤㅤㅤㅤㅤㅤ
 ㅤㅤlikes → music · cats · affection · making friends
 
-         languages → russian + learning english
+                           languages → russian + learning english
 
 
 ! dni → racists · homophobes · sexists · anti-feminists · intolerant people
