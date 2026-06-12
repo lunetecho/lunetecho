@@ -1,16 +1,59 @@
-## Hi there 👋
+<div align="center">
 
-<!--
-**lunetecho/lunetecho** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+⠀⠀⠀⠀⠀⠀⠀⠀⠀heyooo
 
-Here are some ideas to get you started:
+✿ lunet / lune !! 16 y.o
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+21 october ★ intp
+
+bisexual ? yep
+
+otherwise don't be weird pls .ᐟ
+
+━━━━━━━━━━━━━━━━
+
+☾ rus music
+
+☾ eng music
+
+☾ gentle soul
+
+☾ night listener
+
+☾ loves cute things
+
+☾ always with headphones
+
+━━━━━━━━━━━━━━━━
+
+♡ likes
+
+music
+
+cats
+
+late night conversations
+
+attention from close people
+
+kind people
+
+━━━━━━━━━━━━━━━━
+
+✘ dni
+
+homophobes
+
+racists
+
+rude people
+
+people who spread hate
+
+━━━━━━━━━━━━━━━━
+
+"treat people with kindness"
+
+☆⌒(ゝ。∂)
+
+</div>
