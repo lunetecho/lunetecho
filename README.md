@@ -1,60 +1,27 @@
-<p align="center">
+<div align="center">
+
+.
+
+ㅤ ㅤ80 ℅  !       ⁺˖ ⸝⸝  identify the subject  .
+
+ㅤ              – who are you dealing with? . . .
+
+                     → ˗ ˏ" lun3t „ ˎ˗ ←
+
+ ◟  lunet ㅤㅤ 21 october ㅤ:  bisexual ㅤㅤ single ㅤ:  INTP
+
+.
 
 ㅤㅤㅤㅤㅤㅤ!
-
-heyaaaa
-
-✦ Lunet ✦
-
-( ◞⸝⸝ ◟ )
-
-INTP • 16  ,  21 october
-
-₊˚⊹♡⊹˚₊
-
-</p>
-
-ㅤ, ˙ — ྀ࿐ ˊˎ-
-
-♡ music
-
-♡ cats
-
-♡ affection
-
-♡ making friends
-
-♡ kind people
-
+ㅤ,   ˙ —        ྀ࿐ ˊˎ-:ㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤ
+ㅤㅤlikes → music · cats · affection · making friends
 
-⌞ russian ⌝
+         languages → russian + learning english
 
-⌞ learning english ⌝
 
-⌞ please be patient with me ♡ ⌝
+! dni → racists · homophobes · sexists · anti-feminists · intolerant people
 
-ㅤㅤㅤㅤㅤㅤ
+i do not interact with the people listed above.
 
-❀ hoping to find english-speaking friends !
-
-ㅤㅤㅤㅤㅤㅤ
-
-──── DNI ────
-
-racists
-
-homophobes
-
-sexists
-
-anti-feminists
-
-intolerant people
-
-─────────────
-
-₊˚⊹♡⊹˚₊
-have a nice day =^･ω･^=
-
-₊˚⊹♡⊹˚₊
+</div>
