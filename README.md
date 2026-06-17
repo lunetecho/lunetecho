@@ -11,7 +11,7 @@
                               OP@L
 ㅤ          ㅤ                
 
-ㅤ     B1SEXU@L    ㅤ 1NTP       21.1O
+ㅤ  B1SEXU@L    ㅤ 1NTP       21.1O
 
   S1NGL3           
 ㅤ 
