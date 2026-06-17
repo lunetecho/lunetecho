@@ -2,31 +2,30 @@
 
 .
 
-ㅤ     ㅤ80 ℅  !       
-
-  ⁺˖ ⸝⸝  identify the subject  .
-
-  – who are you dealing with? . . .
-
-  → ˗ ˏ" lun3t „ ˎ˗ ←
-
- ◟  lunet ㅤㅤ 21 october  ឵឵ :   ឵឵?? y . oㅤ឵឵ :   ឵឵ bisexual ㅤㅤ single ㅤ:  INTP
+ㅤ   ㅤㅤ
 
 
-.
+ㅤㅤ1OO %   S0FT   ???
 
-ㅤㅤㅤㅤㅤㅤ!
-ㅤ,   ˙ —        ྀ࿐ ˊˎ-:ㅤㅤㅤ
+ㅤ                                   
+                      OP@L
+ㅤ          ㅤ                
+
+ㅤ             B1SEXU@L    ㅤ 1NTP       21.1O
+                             S1NGL3           
+ㅤ 
+ㅤ
+ㅤㅤ
 
 
 .
 
 ㅤㅤㅤㅤㅤㅤ
 
-  —  languages → russian  +  ukrainian  + learning english
+  —  L4NG6AG3S → R6SS14N  +  UKR41N14N  + L34RN1NG 3NGL1SH 
 
 
- , dni → racists · homophobes · sexists · anti-feminists · intolerant people
+ , DN1 → R4C1STS · H0M0PH0B3S · S3X1STS · 4NT1-S3M1T1SM · INT0L3R4NT P30PL3 
 
 
 .
